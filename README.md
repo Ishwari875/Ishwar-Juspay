@@ -1,1 +1,1 @@
-# Ishwar-Juspay
+# Ishwari-Juspay
